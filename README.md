@@ -7,4 +7,4 @@ Apresentar seus trabalhos de forma clara é indispensável para qualquer desenvo
 
 ## LinkedIn
 
-[LinkedIn - dsousr](https://www.linkedin.com/in/hnrsous/)
+[LinkedIn - hnrsous](https://www.linkedin.com/in/hnrsous/)
